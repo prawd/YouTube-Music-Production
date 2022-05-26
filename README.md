@@ -31,6 +31,8 @@
 
 [AdmiralBumblebee](https://www.youtube.com/c/AdmiralBumblebee)  /prod/ partner
 
+[SonicScoop](https://www.youtube.com/c/SonicScoopVideo)  specifically Matthew Brenner
+
 [Mix with the Masters](https://www.youtube.com/user/MixWithTheMASTERS)
 
 [Dan Worrall](https://www.youtube.com/c/DanWorrall)  fabfilter voice man
@@ -57,8 +59,6 @@ certified
 [Production Advice](https://www.youtube.com/c/ProductionAdvice)   mastering oriented
 
 [Creative Sound Lab](https://www.youtube.com/c/creativesoundlab)  creative like the name says
-
-[SonicScoop](https://www.youtube.com/c/SonicScoopVideo)
 
 ## **ok**:
 [future music magazine](https://www.youtube.com/c/FutureMusicMagazine) in the studio with
