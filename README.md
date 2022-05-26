@@ -13,17 +13,13 @@
 
 [Kenny Beats](https://youtu.be/wSsIRkziCIg)
 
-[Guy Michelmore](https://www.youtube.com/c/ThinkSpaceEducation)
-
-[matthew brenner](https://discord.com/channels/@me/412199400593424384/979218853550751764)  dr. derg sap secrets of the pharaohs
+[Guy Michelmore](https://www.youtube.com/c/ThinkSpaceEducation)  Composition
 
 [Alex Ball](https://www.youtube.com/c/AlexBallMusic)  Vintage synths, scores, genres
 
 [Paul Third](https://www.youtube.com/c/PaulThird)  "intellectual" vlogging
 
 [MixbusTv](https://www.youtube.com/user/mixbustv) Mixing
-
-[Guy Michelmore](https://www.youtube.com/c/ThinkSpaceEducation)  Composition
 
 [Making records with Eric Valentine](https://www.youtube.com/channel/UChV4ZbmdvFZFDGN8XRzpIrQ)  Professional
 
