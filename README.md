@@ -1,6 +1,6 @@
-# YouTube Production List
+# YouTube Music Production
 
-### S+ Legend Status (start here before anything else):
+### **S+ Legend Status (start here before anything else):**
 [**The Art Of Mixing - David Gibson**](https://www.youtube.com/watch?v=TEjOdqZFvhY) 
 
 ### **Good**:
@@ -57,6 +57,8 @@ certified
 [Recording Studio Loser](https://www.youtube.com/c/RecordingStudioLoser)  general recording advice
 
 [Production Advice](https://www.youtube.com/c/ProductionAdvice)   mastering oriented
+
+[Julian Krause](https://www.youtube.com/c/JulianKrause)  Audio interface & DAC reviews
 
 [Creative Sound Lab](https://www.youtube.com/c/creativesoundlab)  creative like the name says
 
